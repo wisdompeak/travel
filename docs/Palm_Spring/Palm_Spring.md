@@ -1,20 +1,30 @@
-Palm Spring - Joshua Tree NP - Channel Island NP
+2019年感恩节假期：Palm Spring - Joshua Tree NP - Channel Island NP
 ===================
 
 时间
 -------------
 2019年11月27日（周三）-12月1日（周日）
 
+基本行程
+-------------
+2019年11月26日：西南航空，深夜抵达洛杉矶。
 
-Hey! I'm your first Markdown document in **StackEdit**[^stackedit]. Don't delete me, I'm very helpful! I can be recovered anyway in the **Utils** tab of the <i class="icon-cog"></i> **Settings** dialog.
+2019年11月27日：RoboLights；Premium Oulets
+
+2019年11月28日：Arial Tram； 救赎山；Premium Oulets
+
+2019年11月29日：Joushua Tree 国家公园
+
+2019年11月30日：Channel Island 国家公园之Santa Cruze岛
+
+2019年12月1日：The Last Bookstore.
 
 ----------
-
-
-Documents
+出发
 -------------
+这次感恩节假期安排的比较随意。
 
-StackEdit stores your documents in your browser, which means all your documents are automatically saved locally and are accessible **offline!**
+![随意](https://photos.app.goo.gl/pK52HqUAieTaZFEg9 "随意")
 
 > **Note:**
 
