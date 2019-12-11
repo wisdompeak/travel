@@ -13,18 +13,18 @@ Palm Spring - Joshua Tree NP - Channel Island NP
 
 2019年11月27日：RoboLights；Premium Oulets
 
-2019年11月28日：Arial Tram； 救赎山；Premium Oulets
+2019年11月28日：Arial Tram； Salvation Mountain（救赎山）；Premium Oulets
 
-2019年11月29日：Joushua Tree 国家公园
+2019年11月29日：Joushua Tree 约瑟树国家公园
 
-2019年11月30日：Channel Island 国家公园之Santa Cruze岛
+2019年11月30日：Channel Island 海峡群岛国家公园之Santa Cruze岛
 
 2019年12月1日：The Last Bookstore.
 
 ----------
 出发
 -------------
-这次感恩节假期安排的比较随意。
+这次感恩节假期安排的比较随意，提前三周左右才决定出游。传统上考虑冬季要去南边或者温暖点的地方比较舒服。地图上来看，美国从东到西，佛罗里达、新奥尔良、德州、圣地亚哥我们都游过了，夏威夷也去过了一次，除了cruise估计也没有什么新地方可以过冬了。这时候想起来洛杉矶附近有两处国家公园还没有打卡，虽然都比较小众，但趁现在年轻还有时间和精力，还是尽量多出去走走。这两处离洛杉矶也不远，估计不会太冷，感恩节假期不会很受罪。
 
 ![Test](https://lh3.googleusercontent.com/Y4NUuBzH-ZnPAR14Z8UWN-B0ouiw2n7M_WyMnf8mASj0jz5C_LD7FUTZa43E3DPvZBFli-fVAsAIEeY58T33i0CiELVqM1xjxdlv-AsajxkhUZKMOhOIWWUDgDzA8OEDJ1bm1LSvD3fKM5pGB5XXWsqUvJeifgWFYfaJQIuNt7Pyubcssk6DmnQu48d6mjIhUehAEeXSAgLz-23IfVQlDdZDjyeasURNa8ZcYkrv4R02lFzqjNkII3jUeXrUkwEMqJahobwa7D4Y7I_lB1Ktev6z-zJfXvGb3pSkTXOsBGT6_laxcCOwOe1ym6n50NVs767lm-zDwkCoGQVhPa78wzqtV7ydYu_OJCC2NUy80ZgRqT8CxPBsSrvUyP_MKXwtzJ43GQcG3iN-MT2gvPELmTrB54veRUDwJdk1C6EQiKPOONIpyB3jlTso80JDb_0DSZUSQAC6q6CzzuGfcR8bI02fwCIbj8o_mAPxMu-oOYNRkf_ikglQByeMFPHh1DJtNmzBRgNRCQlFIuZP9wlkbkhKoctzhmLN8qquj_L1wYQ9nlqqLcB2_-HCABqNwZZc6roarsmJ6M-_LFKZXj-jckTtF_0ee2YpHNB7z2EaYBHnGLeraEYF0U0kp_t9nrhnLfW7gWVONHSeS2RNlV26XTU8lKBGV89YSIZHtqydlBJ0ujNbP-WHc3IVx8NdTixwSYnPPjtg7MqrId5MZZFzvJs58eUDv2g5=s888-no)
 ![baidu](http://www.baidu.com/img/bdlogo.gif)
