@@ -24,7 +24,8 @@
 -------------
 这次感恩节假期安排的比较随意。
 
-![随意](https://photos.app.goo.gl/pK52HqUAieTaZFEg9 "随意")
+![随意](https://photos.app.goo.gl/pK52HqUAieTaZFEg9)
+![baidu](http://www.baidu.com/img/bdlogo.gif "百度logo
 
 > **Note:**
 
