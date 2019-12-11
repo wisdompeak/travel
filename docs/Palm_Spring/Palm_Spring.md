@@ -1,6 +1,6 @@
 2019年感恩节假期：
 ===================
-Palm Spring (棕榈泉) - Joshua Tree NP （约瑟树国家公园）- Channel Island NP（海峡群岛国家公园）
+Palm Spring - Joshua Tree NP - Channel Island NP
 ===================
 
 时间
