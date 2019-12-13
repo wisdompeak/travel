@@ -37,7 +37,7 @@ Palm Spring - Joshua Tree NP - Channel Island NP
 ![baidu](http://www.baidu.com/img/bdlogo.gif)
 
 
-![Test](https://www.amazon.com/photos/shared/Cf0fQ9SmTo-_zkdgLuJHKg.wjgDtZguUv4XEktlGJDYC2)
+![Test](https://thumbnails-photos.amazon.com/v1/thumbnail/JpC6ZUygReqyvm6Iz9qRzg?viewBox=2109%2C1186&ownerId=A3L219Y86QHKT2&groupShareToken=Cf0fQ9SmTo-_zkdgLuJHKg.wjgDtZguUv4XEktlGJDYC2)
 ----------
 第一天：11月27日
 -------------
