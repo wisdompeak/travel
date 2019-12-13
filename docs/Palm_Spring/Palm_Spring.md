@@ -24,11 +24,18 @@ Palm Spring - Joshua Tree NP - Channel Island NP
 ----------
 出发
 -------------
-这次感恩节假期安排的比较随意，提前三周左右才决定出游。传统上考虑冬季要去南边或者温暖点的地方比较舒服。地图上来看，美国从东到西，佛罗里达、新奥尔良、德州、圣地亚哥我们都游过了，夏威夷也去过了一次，除了cruise估计也没有什么新地方可以过冬了。这时候想起来洛杉矶附近有两处国家公园还没有打卡，虽然都比较小众，但趁现在年轻还有时间和精力，还是尽量多出去走走。这两处离洛杉矶也不远，估计不会太冷，感恩节假期不会很受罪。
+这次感恩节假期安排的比较随意，提前三周左右才决定出游。传统上考虑冬季要去南边或者温暖点的地方比较舒服。地图上来看，美国从东到西，佛罗里达、新奥尔良、德州、圣地亚哥我们都游过了，夏威夷也去过了一次，除了坐cruise去加勒比海之外估计也没有什么新地方可以过冬了。这时候想起来洛杉矶附近有两处国家公园还没有打卡，都属于比较小众的景点，估计人流不会太多，各类花费也比较低，比较适合说走就走。
+
+这两处离洛杉矶不远，估计不会太冷，感恩节假期不会很受罪。但事实上从临近假期开始，加州就开始降雨。虽然加州是地中海气候，一年到头艳阳高照，也就只有冬季的时候可能会降水，但偏偏在想要旅行的时候遇到持续瓢泼大雨，运气也是没啥了。周二晚的航班因为强降雨的原因，从晚上九点推迟到十一点半，抵达洛杉矶的时候是凌晨十二点半。去租车的地方提车、出发，已经接近一点半。开车到达棕榈泉的旅馆，已经接近四点。从机场出城的路上，从某个下山的角度看，凌晨的还是灯火通明的城市，情不自禁地就会想起“凌晨四点的洛杉矶”的梗。
+
+这次租车挑了辆Jeep，属于mid-size的都市SUV，不是很运动型的那种。除了驾驶座的座椅调整竟然只能是手动的，略微诧异，其他驾驶体验都还不错。方向盘很轻，刹车也比较灵敏。另外有意思的是，只有一个15V的车载充电口，另外一个（后座）竟然提供的是30V的交流电！
 
 ![Test](https://lh3.googleusercontent.com/Y4NUuBzH-ZnPAR14Z8UWN-B0ouiw2n7M_WyMnf8mASj0jz5C_LD7FUTZa43E3DPvZBFli-fVAsAIEeY58T33i0CiELVqM1xjxdlv-AsajxkhUZKMOhOIWWUDgDzA8OEDJ1bm1LSvD3fKM5pGB5XXWsqUvJeifgWFYfaJQIuNt7Pyubcssk6DmnQu48d6mjIhUehAEeXSAgLz-23IfVQlDdZDjyeasURNa8ZcYkrv4R02lFzqjNkII3jUeXrUkwEMqJahobwa7D4Y7I_lB1Ktev6z-zJfXvGb3pSkTXOsBGT6_laxcCOwOe1ym6n50NVs767lm-zDwkCoGQVhPa78wzqtV7ydYu_OJCC2NUy80ZgRqT8CxPBsSrvUyP_MKXwtzJ43GQcG3iN-MT2gvPELmTrB54veRUDwJdk1C6EQiKPOONIpyB3jlTso80JDb_0DSZUSQAC6q6CzzuGfcR8bI02fwCIbj8o_mAPxMu-oOYNRkf_ikglQByeMFPHh1DJtNmzBRgNRCQlFIuZP9wlkbkhKoctzhmLN8qquj_L1wYQ9nlqqLcB2_-HCABqNwZZc6roarsmJ6M-_LFKZXj-jckTtF_0ee2YpHNB7z2EaYBHnGLeraEYF0U0kp_t9nrhnLfW7gWVONHSeS2RNlV26XTU8lKBGV89YSIZHtqydlBJ0ujNbP-WHc3IVx8NdTixwSYnPPjtg7MqrId5MZZFzvJs58eUDv2g5=s888-no)
 ![baidu](http://www.baidu.com/img/bdlogo.gif)
 
+----------
+第一天：11月27日
+-------------
 
 > **Note:**
 
