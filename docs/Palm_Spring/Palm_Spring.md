@@ -21,6 +21,8 @@ Palm Spring - Joshua Tree NP - Channel Island NP
 
 2019年12月1日：The Last Bookstore.
 
+大致的planning map，请参见[这里](https://drive.google.com/open?id=1LhzF_qsol-exuMSc-Yzi-ntuF5hi7rBA&usp=sharing)。
+
 ----------
 出发
 -------------
@@ -28,6 +30,7 @@ Palm Spring - Joshua Tree NP - Channel Island NP
 
 这两处离洛杉矶不远，估计不会太冷，感恩节假期不会很受罪。但事实上从临近假期开始，加州就开始降雨。虽然加州是地中海气候，一年到头艳阳高照，也就只有冬季的时候可能会降水，但偏偏在想要旅行的时候遇到持续瓢泼大雨，运气也是没啥了。周二晚的航班因为强降雨的原因，从晚上九点推迟到十一点半，抵达洛杉矶的时候是凌晨十二点半。去租车的地方提车、出发，已经接近一点半。开车到达棕榈泉的旅馆，已经接近四点。从机场出城的路上，从某个下山的角度看，凌晨的还是灯火通明的城市，情不自禁地就会想起“凌晨四点的洛杉矶”的梗。
 
+#### 租车
 这次租车挑了辆Jeep，属于mid-size的都市SUV，不是很运动型的那种。除了驾驶座的座椅调整竟然只能是手动的，略微诧异，其他驾驶体验都还不错。方向盘很轻，刹车也比较灵敏。另外有意思的是，只有一个15V的车载充电口，另外一个（后座）竟然提供的是30V的交流电！
 
 ![Test](https://lh3.googleusercontent.com/Y4NUuBzH-ZnPAR14Z8UWN-B0ouiw2n7M_WyMnf8mASj0jz5C_LD7FUTZa43E3DPvZBFli-fVAsAIEeY58T33i0CiELVqM1xjxdlv-AsajxkhUZKMOhOIWWUDgDzA8OEDJ1bm1LSvD3fKM5pGB5XXWsqUvJeifgWFYfaJQIuNt7Pyubcssk6DmnQu48d6mjIhUehAEeXSAgLz-23IfVQlDdZDjyeasURNa8ZcYkrv4R02lFzqjNkII3jUeXrUkwEMqJahobwa7D4Y7I_lB1Ktev6z-zJfXvGb3pSkTXOsBGT6_laxcCOwOe1ym6n50NVs767lm-zDwkCoGQVhPa78wzqtV7ydYu_OJCC2NUy80ZgRqT8CxPBsSrvUyP_MKXwtzJ43GQcG3iN-MT2gvPELmTrB54veRUDwJdk1C6EQiKPOONIpyB3jlTso80JDb_0DSZUSQAC6q6CzzuGfcR8bI02fwCIbj8o_mAPxMu-oOYNRkf_ikglQByeMFPHh1DJtNmzBRgNRCQlFIuZP9wlkbkhKoctzhmLN8qquj_L1wYQ9nlqqLcB2_-HCABqNwZZc6roarsmJ6M-_LFKZXj-jckTtF_0ee2YpHNB7z2EaYBHnGLeraEYF0U0kp_t9nrhnLfW7gWVONHSeS2RNlV26XTU8lKBGV89YSIZHtqydlBJ0ujNbP-WHc3IVx8NdTixwSYnPPjtg7MqrId5MZZFzvJs58eUDv2g5=s888-no)
@@ -36,6 +39,10 @@ Palm Spring - Joshua Tree NP - Channel Island NP
 ----------
 第一天：11月27日
 -------------
+这次入住的旅馆是 VAGABOND INN - PALM SPRINGS，总体感觉还不错。提供标准的早餐，还算丰富，特别是有大容量的自制酸奶。因为昨晚睡的非常晚，我们特意在九点钟起来吃了早餐之后，又回去补觉。
+
+
+
 
 > **Note:**
 
