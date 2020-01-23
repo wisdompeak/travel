@@ -98,10 +98,6 @@ Pioneer Town不大，这个季节人流也很少，比较凋敝。大部分复�
 
 ![](http://www.meilvtong.com/attachment.php?aid=MTU2ODl8MDBlMmFhNzd8MTU3OTc2OTM5NXw4Yjljd3JhRFBQYnR5RWdRRi9oeHZLd1NrMytTYng0ZWpndzQ0RFUxa01IektoSQ%3D%3D&noupdate=yes)
 
-
-
-
-
-
+花了大概半个多小时看星星之后，就沿着公园主路回到了小镇。晚饭在一家中餐自助叫Dragon King Buffet。[Yelp](https://www.yelp.com/biz/dragon-king-buffet-yucca-valley)上的评价非常凄惨，各种差评。不过我们的经验是，全美所有地方对中餐自助的评价普遍不高。我们鼓起勇气给了他们一次机会。最后感觉吃的还可以，非常标准的中国老板加中国伙计，非常标准的（美式）中餐自助，味道/品种/价格各个环节和以往去过的全美各地的Chinese buffet没有半点偏差，感觉都是从一个门派学出来的。
 
 
