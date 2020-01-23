@@ -64,6 +64,35 @@ All your local documents are listed in the document panel. You can switch from o
 
 You can rename the current document by clicking the document title in the navigation bar.
 
+
+
+
+
+
+
+
+
+
+
+
+
+-------------
+第三天：2019年11月29日
+-------------
+
+这一天的行程主要是 Joushua Tree National Park. 约瑟树国家公园.
+
+在从palm spring到国家公园的路上可以经过一个叫做pioneer town的地方。
+
+
+
+
+
+
+
+
+
+
 #### <i class="icon-trash"></i> Delete a document
 
 You can delete the current document by clicking <i class="icon-trash"></i> **Delete document** in the document panel.
