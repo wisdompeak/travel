@@ -82,10 +82,11 @@ You can rename the current document by clicking the document title in the naviga
 
 这一天的行程主要是 Joushua Tree National Park. 约瑟树国家公园.
 
-在从palm spring到国家公园的路上可以经过一个叫做pioneer town的地方。
+#### Pioneer Town
+在从palm spring到国家公园的路上可以经过一个叫做Pioneer Town的地方。位置在偏离主干道开15分钟左右的地方。
 
 
-
+![Test](https://r3---sn-a5m7lnlz.googlevideo.com/videoplayback?expire=1579774139&ei=m1QpXub8B8nEkgaLioj4Bg&ip=73.15.13.29&id=b0764564d89a7338&itag=37&source=picasa&begin=0&requiressl=yes&sc=yes&susc=ph&app=fife&mime=video/mp4&dur=2.856&lmt=1576431857705098&sparams=expire,ei,ip,id,itag,source,requiressl,susc,app,mime,dur,lmt&sig=ALgxI2wwRgIhAJqMV0Gz--Mv0uTy4sAOckchlIZX5EM1_XTqooS6BhTuAiEA84idzy5Pgiok0vEms7PJ1iZMqrduNcQjfSlp4eP1IMs=&redirect_counter=1&cm2rm=sn-n4ver7s&req_id=15227a8deb75a3ee&cms_redirect=yes&mm=34&mn=sn-a5m7lnlz&ms=ltu&mt=1579766855&mv=u&mvi=2&pl=23&lsparams=mm,mn,ms,mv,mvi,pl,sc&lsig=AHylml4wRQIgZvUJata9LfRj8pgMHbkb0t1AJIqhHbI2PhDuUyvCVT0CIQD9230qgbByjAJNOI-184btOnDJX91SX59hqgxuHKfvbQ==)
 
 
 
